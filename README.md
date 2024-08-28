@@ -1,4 +1,4 @@
-## olá, eu sou João 🔫
+## olá, eu sou João  🥸
 sou estudante da escola josé marcelino 
 
 estou no github principalmente para as seguintes ações :
